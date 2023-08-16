@@ -1,2 +1,3 @@
 OLA MEU NOME VINICIOS 
 ESTOU ESTUDANDO NO ALURA
+![image](https://github.com/vinicios12345/vinicios12345/assets/138056093/8c328770-a4e5-44eb-9638-18ec4d94135e)
